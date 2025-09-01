@@ -53,3 +53,5 @@ This is my personal collection of desktop wallpapers.
 ![tengen-uzui-dark-3840x2160-18405.jpg](tengen-uzui-dark-3840x2160-18405.jpg)
 
 ![zenitsu-agatsuma-3840x2160-20236.jpg](zenitsu-agatsuma-3840x2160-20236.jpg)
+
+![kurokawaakane.jpeg](kurokawaakane.jpeg)
